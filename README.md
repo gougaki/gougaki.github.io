@@ -1,0 +1,1 @@
+# gougaki.github.io
